@@ -2,7 +2,7 @@
 fortnite internal sigs offsets exploits
 
 
-
+HIS NEW UPDATED INTERNAL IS SAME SHIT DONT BUY
 
 MysteryMan aka AI#0002 aka SIGMA#0001 aka mystery0man expose
 
