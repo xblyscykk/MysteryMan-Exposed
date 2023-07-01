@@ -12,6 +12,8 @@ https://cdn.discordapp.com/attachments/1123776968610021407/1124691929351864460/i
 the version in the booster rewards is the exact same
 
 
+PROOF ITS AI https://cdn.discordapp.com/attachments/1123615019423236277/1124694846314123294/image.png
+
 AI puts rats in his 2 injectors
 He is known to be ratting his customers
 I had to pay 20$ for his rat, password to his internals is ai's private internal
