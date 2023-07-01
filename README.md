@@ -13,6 +13,7 @@ the version in the booster rewards is the exact same
 
 
 PROOF ITS AI https://cdn.discordapp.com/attachments/1123615019423236277/1124694846314123294/image.png
+https://cdn.discordapp.com/attachments/1123615019423236277/1124695337974644746/image.png
 
 AI puts rats in his 2 injectors
 He is known to be ratting his customers
