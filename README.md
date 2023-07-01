@@ -19,6 +19,7 @@ I had to pay 20$ for his rat, password to his internals is ai's private internal
 https://cdn.discordapp.com/attachments/1123615019423236277/1124693548722298880/ai_shit_driver.rar
 
 Shit driver he puts as his "UD" driver for booster rewards
+Detected on EAC/BE within hours
 https://cdn.discordapp.com/attachments/1123615019423236277/1124693834639622144/image.png
 His shit internal is available on my repo / password to it is ai's private internal
 
